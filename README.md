@@ -1,1 +1,1 @@
-# suicide_help
+https://asimaf.github.io/suicide_help/
